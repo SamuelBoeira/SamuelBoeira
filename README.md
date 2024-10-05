@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on visionary projects that 
 - 📫 How to reach me >>> If you want to contact me just send me an email to sboeira902@gmail.com or linkedin (linkedin.com/in/samuel-boeira1)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm not trying to be rich, just want to live a peaceful life with my girlfriend and travel around the world with her.
+- ⚡ Fun fact: I'm not trying to be rich, just dreaming to live a peaceful life with my girlfriend and travel around the world with her.
 
 <!---
 SamuelBoeira/SamuelBoeira is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
